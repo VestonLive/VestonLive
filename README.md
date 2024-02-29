@@ -1,3 +1,3 @@
 - Hello! I'm Sev, otherwise known as Veston! I go by He/They pronouns!
 - I work a lot with datapacks and resource pack for Minecraft!
-- You can reach me anywhere where you find my VestonLive name :D! Well more specifically Twitter, Discord, or Instagram since those are some of the only social medias I have accounts with XD
+- You can reach me anywhere where you find my VestonLive name :D! Well more specifically the ones in my bio, since those are some of the ones I actually have XD
